@@ -1,0 +1,2 @@
+# premium-pauldron-001-pauldron-shoulder-plate-mobili
+Tired of guessing how much a pauldron plate restricts your shoulder raise? This calculator turns guesswork into data.  Stop relying on trial-and-error. The Pauldron Shoulder Plate Mobility Calculator quantifies the exact impact of plate dimensions, articulation points, and overlap on your shoulder's range of motion. Built for armor smiths, cosplaye
